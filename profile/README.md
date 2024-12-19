@@ -2,7 +2,7 @@
 
 Free Fire, developed by 111 Dots Studio and published by Garena, is one of the most popular mobile battle royale games globally. It has captivated millions of gamers with its intense gameplay, quick matches, and user-friendly interface. The game allows players to fight for survival on a deserted island, with 50 players battling it out in a shrinking safe zone. The last person or team standing wins. Its success can be attributed to its accessibility, low storage requirements, and optimization for various Android devices.
 
-Link Download : [94fbr Free Fire APK](https://modilimitado.io/en/94fbr-free-fire-apk)
+# Link Download : [94fbr Free Fire APK](https://modilimitado.io/en/94fbr-free-fire-apk)
 
 ![feature-image](https://qa-apk.com/wp-content/uploads/2024/04/94fbr-free-fire-india-apk-on-qaapk.jpg)
 
